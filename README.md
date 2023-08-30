@@ -6,8 +6,8 @@
 - 💞️ I am also proficient in clouds.
 - 📫 If your business or your team or your project is in serious need of creating some quality systems or products, get in touch now! 
 
-Discord: gonida#6162
-Gmail:   gonida0401@gmail.com
+Discord: gonida0
+Gmail:   gonida41@gmail.com
 
 Feel free to reach me.
 
